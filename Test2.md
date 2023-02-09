@@ -1,0 +1,1 @@
+Relembrado alguns comandos 😀
